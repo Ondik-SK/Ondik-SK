@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Ondik-SK
+- 👀 I’m interested in trains and public transport.
+- 📫 How to reach me ondik-orts@proton.me
+- ⚡ Fun fact: I like old (Czecho-)Slovak trains!
